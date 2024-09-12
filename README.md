@@ -4,16 +4,8 @@
 - I’m looking to collaborate on ...nothing at the moment
 - How to reach me ... idk im trapped on a desert island alone
 - Pronouns: ... he/him/himothy
-- Fun fact: ... It'd take 3333 lemon batteries working at their peak to run an electric chair & i like cats becuase they're cute and go:
-         ／＞　 フ
-        | 　_　_|
-      ／` ミ＿xノ
-     /　　　　 |
-    /　 ヽ　　 ﾉ
-   │　　|　|　|
-／￣|　　 |　|　|
-(￣ヽ＿_ヽ_)__)
-＼二)
+- Fun fact: ... It'd take 3333 lemon batteries working at their peak to run an electric chair & i like cats becuase they're cute and go: ᓚᘏᗢ
+
 
 <!---sigma
 Lemon-Lad/Lemon-Lad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
